@@ -1,0 +1,1 @@
+# SmartCargas-CONF-MOD_ESW1_v1211
